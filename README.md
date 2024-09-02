@@ -1,3 +1,7 @@
+
+[Resume.pdf](https://github.com/user-attachments/files/16840042/Resume.pdf)
+
+
 Akash Sathyamurthy
 Technical Content Artist
 Rockstar Games
