@@ -1,3 +1,4 @@
 Resume
 
-[Resume.pdf](https://github.com/user-attachments/files/16840102/Resume.pdf)
+[Resume.pdf](https://github.com/user-attachments/files/16842667/Resume.pdf)
+
